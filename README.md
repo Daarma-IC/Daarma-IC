@@ -1,5 +1,5 @@
 # 💫 About Me
-HELLOw!!<br><br>🔭 I’m currently Study at Telecommunication Engineering<br>🌱 I’m currently Unnamed Aerial Vehicle and Mobile Development<br>💬 Ask me about<br>⚡👯 🤝 🌱
+HELLOw!!<br><br>🔭 I’m currently Study at Telecommunication Engineering<br>🌱 I’m currently Study about Unnamed Aerial Vehicle and Mobile Development<br>💬 Ask me about<br>⚡👯 🤝 🌱
 
 
 ## 🌐 Socials:
