@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me
 HELLOw!!<br><br>🔭 I’m currently Study at Telecommunication Engineering<br>🌱 I’m currently Unnamed Aerial Vehicle and Mobile Development<br>💬 Ask me about<br>⚡👯 🤝 🌱
 
 
